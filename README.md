@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @VoRt0X (Alex)
+- 👀 I’m interested in IT, Gaming & Music
+- 🌱 I’m currently learning Python
+- 📫 How to reach me Discord: -Alex-#1409
